@@ -70,6 +70,6 @@ Psychology
 
 **Russian** - native
 
-**English** - B1+
+**English** - B2
 
 **Czech** - A2
